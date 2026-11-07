@@ -1,1 +1,1 @@
-Downloand do APk Master Lotto Mobile
+Downloand do APK Master Lotto Mobile
